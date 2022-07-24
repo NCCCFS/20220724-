@@ -1,1 +1,27 @@
-
+# 2022年7月24日：羊的门
+# 经文：约翰福音10
+<audio controls src="./羊的门.mp3"></audio> 
+![image](https://user-images.githubusercontent.com/91267933/180669880-750e1c5c-34be-465e-80ae-4ae98a4e8801.png)
+![image](https://user-images.githubusercontent.com/91267933/180669957-f5f44561-bfee-4e18-9f7a-ccee4214848a.png)
+![image](https://user-images.githubusercontent.com/91267933/180669965-2ef52269-f901-4c02-b986-16c8db5a5b26.png)
+![image](https://user-images.githubusercontent.com/91267933/180669974-c5b645c9-932d-4cbd-b696-a8c76fc1e34e.png)
+![image](https://user-images.githubusercontent.com/91267933/180669985-a5fc15c6-bf40-4006-bf18-8db5d02b1d5c.png)
+![image](https://user-images.githubusercontent.com/91267933/180670003-dfab970c-3fef-4a99-a712-fb753da5a487.png)
+![image](https://user-images.githubusercontent.com/91267933/180670016-d4165c00-034d-4378-86c0-92d33be71212.png)
+![image](https://user-images.githubusercontent.com/91267933/180670029-306d9c58-4a90-47de-b499-9b7b5aa66547.png)
+![image](https://user-images.githubusercontent.com/91267933/180670034-07fc9176-4fcb-4403-9a2d-d83de9e2aaa0.png)
+![image](https://user-images.githubusercontent.com/91267933/180670040-0daa9a7f-65cd-4d06-bd70-95237b1e83dd.png)
+![image](https://user-images.githubusercontent.com/91267933/180670049-f0380be9-5be3-4366-b3ea-9796d6182595.png)
+![image](https://user-images.githubusercontent.com/91267933/180670054-8d1031da-2254-422a-bd88-1413f3029797.png)
+![image](https://user-images.githubusercontent.com/91267933/180670062-1ee6c18b-4956-4fc8-b1a8-08585efe2729.png)
+![image](https://user-images.githubusercontent.com/91267933/180670068-d67db6a8-3bdc-4e2d-904e-0cd0b7ef8bd3.png)
+![image](https://user-images.githubusercontent.com/91267933/180670074-e276b2f6-80a0-432c-8e8a-d05c1aff9619.png)
+![image](https://user-images.githubusercontent.com/91267933/180670078-9ff0ba1e-c503-4a5b-bb15-ca8ce82f4d49.png)
+![image](https://user-images.githubusercontent.com/91267933/180670082-59ce2c22-1efe-4652-94b7-3ea33c5eed4f.png)
+![image](https://user-images.githubusercontent.com/91267933/180670090-2f8fcb02-1a19-4207-bf65-52c9da3ac366.png)
+![image](https://user-images.githubusercontent.com/91267933/180670097-f7a77f1d-6c04-416b-a04b-2cb5e82881c2.png)
+![image](https://user-images.githubusercontent.com/91267933/180670116-ceb30a13-dbe6-499d-ab3b-16ddb31e8872.png)
+![image](https://user-images.githubusercontent.com/91267933/180670128-1fa3bdd0-95d0-4af6-979c-3473495d9a10.png)
+![image](https://user-images.githubusercontent.com/91267933/180670139-a799ca2f-c84a-419c-8172-7c797a977fe6.png)
+![image](https://user-images.githubusercontent.com/91267933/180670142-099011fd-7b37-441e-bd43-e17c3f0d2485.png)
+![image](https://user-images.githubusercontent.com/91267933/180670145-3288f42b-83d9-4f33-a812-54d0090b0c8a.png)
